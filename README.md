@@ -1,1 +1,0 @@
-# kacan-hedef-oyunu
